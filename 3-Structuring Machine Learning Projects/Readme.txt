@@ -1,0 +1,1 @@
+This Course had no Programming assignments only 2 case study quizzes for each week.
